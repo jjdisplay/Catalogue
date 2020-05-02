@@ -1,1 +1,0 @@
-## JJDisplay Product Catalogue
